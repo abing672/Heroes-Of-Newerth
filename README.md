@@ -221,4 +221,4 @@ Heroes of Newerth is the full free version, offering all features and updates wi
 Ready to dive into the action? **Download Heroes of Newerth now and experience the excitement of epic battles today!**
 
 ---
-**Last updated:** 2026-10-09 01:50:32 UTC
+**Last updated:** 2026-10-09 08:41:41 UTC
